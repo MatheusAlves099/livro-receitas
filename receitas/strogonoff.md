@@ -2,19 +2,17 @@
 
 **Ingredientes**
 
-- 1 quilo de peito de frango sem pele
-
-- 1 tablete de caldo de galinha
-
-- 3 colheres de sopa de óleo
-
-- 2 latas de creme de leite sem soro
-
-- 2 colheres de sopa de ketchup
-
-- 2 colheres de sopa de mostarda
-
-- Batata palha ou frita pra acompanhar
+ - 3 peitos de frango cortados em cubos
+ - 1 dente de alho picado
+ - sal e pimenta a gosto
+ - 1 cebola picada
+ - 2 colheres (sopa) de maionese
+ - 1 colher de manteiga
+ - 1/2 copo de ketchup
+ - 1/3 copo de mostarda
+ - 1 copo de cogumelos
+ - 1 copo de creme de leite
+ - batata palha a gosto
 
   **Modo de Preparo**
 
